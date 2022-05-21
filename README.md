@@ -1,1 +1,1 @@
-CEO of kande Inc
+kande
